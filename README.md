@@ -1,1 +1,1 @@
-Just Download in release the lattest GTA V Decompiled scripts
+Just Download in Releases the lattest GTA V Decompiled scripts
